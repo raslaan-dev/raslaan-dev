@@ -2,6 +2,6 @@
 - 👀 I’m interested in games
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on love
-- 😄 Pronouns: fada/boe
+- 😄 Pronouns: him
 - ⚡ Fun fact: Dysleksic
 
